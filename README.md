@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TheNineLynx
-- 👀 I’m interested in many things check out my main account @CaptainPandaMonkey
+- 👀 I’m interested in many things check out my main account @CaptainPandaMonkey5
 - 🌱 I’m currently learning Java OOP and some Python
 - 🌻 This is a dump account for summer and vacations
 
